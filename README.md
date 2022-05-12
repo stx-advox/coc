@@ -35,7 +35,7 @@ The Advocates DAO builds relationships, fosters resilience in core values and gr
 
 With this in mind, these are our commitments:
 
-## Wolf, Turtle, & Bear: Relationship, Governance, & Sustainability
+## Turtle, Wolf, & Bear: Relationship, Governance, & Sustainability
 
 ### Intro:
 
